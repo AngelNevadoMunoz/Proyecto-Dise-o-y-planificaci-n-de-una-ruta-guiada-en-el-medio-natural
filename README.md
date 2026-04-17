@@ -1,1 +1,0 @@
-# Proyecto-Dise-o-y-planificaci-n-de-una-ruta-guiada-en-el-medio-natural
